@@ -1,2 +1,2 @@
 # What_is_a_Tragedy
-Wht is a Tragedy?
+Download VirtuaNES from the NES Branch and suscirbe me for new gadgets!
